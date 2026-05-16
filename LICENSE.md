@@ -1,4 +1,4 @@
-# 
+# Polymarket top Automation Script: API-integration & sentiment-analysis is the best Polymarket automation-script, featuring API-integration and sentiment-analysis. Smart, fast, and
 
 
 
